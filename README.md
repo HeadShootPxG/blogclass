@@ -1,1 +1,1 @@
-B2.2 - Biography of sportsperson
+B2.2 - blog
